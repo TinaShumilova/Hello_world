@@ -2,7 +2,7 @@
 
 Тефтелька замечательный котик)
 
-![https://drive.google.com/file/d/1Ah702FGp1FpiCGmYwmJl4N7ijJyIBvrV/view?usp=sharing](cat.jpg)
+![Тефтелька](https://drive.google.com/file/d/1Ah702FGp1FpiCGmYwmJl4N7ijJyIBvrV/view?usp=sharing)
 
 Совершенно с этим согласна!
 
